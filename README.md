@@ -1,0 +1,2 @@
+# sebagalarza.github.io
+curriculum
